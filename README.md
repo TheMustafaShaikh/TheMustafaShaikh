@@ -1,4 +1,4 @@
-### Hi there, Mustafa Shaikh here! 👋
+### Hi there! 👋
 
 
 - 🔭 I’m currently working as a Freelancer
